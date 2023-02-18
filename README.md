@@ -187,6 +187,7 @@
 - [陈XX](https://github.com/woshishabii)
 - [白雨楠🍥](https://github.com/Shiroiame-Kusu)
 - [Chengnan](https://github.com/chengnan049)
+- [EnbyUtopia](https://github.com/EnbyUtopia)
 <!-- END LGBT-CN SIGNATURE -->
 <!-- 请不要更改上方的标签 -->
 
